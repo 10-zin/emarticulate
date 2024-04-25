@@ -11,3 +11,6 @@ learn emaculate articulation like your idols with emarticulate
 * Add your personal touch
 * Become an idol yourself :)
 
+Terms of use:
+by the people for the people
+Feel free to contribute
