@@ -9,5 +9,5 @@ learn emaculate articulation like your idols with emarticulate
 * Learn their accent
 * Learn their speaking intricacies and style
 * Add your personal touch
-* Become a better speaker.
+* Become an idol yourself :)
 
